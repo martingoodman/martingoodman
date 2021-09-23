@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @martingoodman
 
-- 👀 I’m interested in design and hhow to use technology to create healthier and more enjoyable spaces to live in. 
+- 👀 I’m interested in design and how to use technology to create healthier and more enjoyable spaces to live in. 
 
 ### My story so far ###
 I have always had an interest in design from both arts and technical point of view. For example I studied fine art, Mathematics and Physics before starting my Mechanical Engineering degree. I love architecture as it marries technical, asthetic and cultural areas. Design for me is making choices alongside itterative cycles of testing your assumptions and mental model of the way the world is. I am extreamly curious and get stuck into all sorts of different areas.
